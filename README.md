@@ -1,1 +1,1 @@
-# amusathish-pink
+# amusathish-githubProfileprojectdaywithpink
